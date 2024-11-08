@@ -19,6 +19,7 @@ Strata of Society:
 - The merchants - Paisaniyya -> Networkers/Merchant Networkers (depends on who you ask)
 - The watchers - Dataniyya -> Watchers
 - The curators (elite ruing class) - Programmaniyya -> Curators
+- The performers - Tawayiffiyya -> Creators
 
 The machine, a robot/computer that rules over everything - The Logic
 Its core programming was created by one of the first repairpersons to ever exist, and since then, it's just been maintained to be the same because no one has dared to touch the programming, it's a sacred text almost
@@ -53,6 +54,22 @@ curator strata - Curators
 Interfaces with the programming
 Organizes the monthly festivities
 Trains performers (who perform during the abovementioned festivities)
+
+performer/artist strata - Creators
+life with curators but they are not of the same strata
+
+--
+Character names
+Aayat
+Roshan
+
+Anastacia
+Ollie
+
+Genea
+Shuyin
+Mother
+
 
 --
 

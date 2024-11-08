@@ -176,11 +176,22 @@ Aayat smiled, still not looking at them. "Yeah, I'd like that," she answered. "I
 
 The two stared at the message together.
 
-"Well, time for me to inform dispatch." She pressed a button on a board of keys to her right and typed in a series of numbers matching ones on the screen and it was done. Roshan squeezed Aayat's shoulders from behind.
+"Well, time for me to inform dispatch." She pressed a button on a board of keys to her right and typed in a series of numbers matching ones on the screen and it was done. Tense, her eyes stayed on the blue glow, resting on the blankness in its finality Roshan squeezed Aayat's shoulders from behind, unsure of what to say, knowing that it would be best to say nothing this time, feeling their own worries building up in their stomach
 
-"It is what it is," Aayat said. "It's in his hands now."
+---
 
+The dance emporium was a hall of magnificent rose glass and silver bars. The different floors of the enormous, sprawling complex contained rehearsal room upon rehearsal room, space upon space for any dancer to take their time practicing. The emporium was built so that it would extend in the case of expansion, with bolted points at the edges of rooms where planks of hard synthetic floor material could be slid over. No matter what--if you were a dancer in Dulcity, you were given space.
 
---
+And there were so many dancers in Dulcity! Almost every creator had danced, except for those few extremists who lay on the edges of the Creator class; fringe elements who worshipped other forms of arts so deeply that they were either propelled up to heights as purists or shunned as zealots.
 
+Today, Genea was dancing alone in a room that hung over a fountain. It was her favourite sacred space, a haven for her body and her soul. Today, without music, she carved the invisible air in front of her with her hands, creating shapes only she could see. As she did every day, she felt blessed to have the time to practice. To create. To come up with something that would open others hearts to her.
 
+Her latest project was a work based on the articulation of the shoulders and their connection to the elbows. This shoulder-elbow connection represented strength to Genea; the strength of carrying oneself and the strength of carrying another. She thought of her little brother while she did it. How lucky she was to have a brother at all! The fact that The Logic allowed her mother to have another child at all was a miracle in and of itself. How lucky they were as a family! So blessed that it fueled her art, and brought many patrons to her videos. She knew it and felt the immense pressure, even as she attempted a free-flowing exercise in the privacy of her favourite space.
+
+She arched her back, and spread her shoulders wide like wings outstretched, her big grey eyes staring up at the grey-pink ceiling. It wasn't glass, but the synthetic material the floors were made of. She saw something of a grain, something Genea had noticed before, but then put it out of her mind. It wasn't important. Though she wondered if another artist had considered beautifying the material. It was odd to Genea how nothing about the material had changed over so much time, while so much around her was innovated into being more creative, more artistic. She worked very hard each day to bring something new to dance, after all. Did the Tactiles truly live so free of it? She shook that thought out of her head, too. But she might not have had to. She was interrupted by a voice.
+
+"Genea, please report to Avenue Glazier F at your earliest convenience."
+
+Her limber body straightened in an instant. "What?" she asked, her clipped voice ringing. "I wonder what that's about!"
+
+Whistling, Genea strolled out of the room. The only thing she could consider was a new performance. It filled her with dread, the idea that she would have to put her current creation on hold. But the Curators may have their own ideas. She wondered if Curator Shuyin was behind this.
