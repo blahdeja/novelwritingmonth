@@ -194,4 +194,76 @@ She arched her back, and spread her shoulders wide like wings outstretched, her 
 
 Her limber body straightened in an instant. "What?" she asked, her clipped voice ringing. "I wonder what that's about!"
 
-Whistling, Genea strolled out of the room. The only thing she could consider was a new performance. It filled her with dread, the idea that she would have to put her current creation on hold. But the Curators may have their own ideas. She wondered if Curator Shuyin was behind this.
+Whistling, Genea strolled out of the room. The only thing she could consider was a new performance. It filled her with dread, the idea that she would have to put her current creation on hold. But the Curators may have their own ideas. She wondered if Curator Shuyin was behind this. Shuyin never stopped being obsessed with the island play.
+
+----
+
+*NOTE: I changed gears with this story rather quickly after realizing that the story was going nowhere, so consider this a reboot from here on out.*
+
+It was afternoon in the dark marble halls; the towering rooms of black emerald dotted with moments of shadowy, blotchy coppers peeking out as ribbons from within the stone. And coppery too were the tangled metalwork designs hewn by ancient Creators bordering each doorway, striping across the tops of the columns, and twirling itself around the top corners of each wall.
+
+Two young Dulcitars walked in through the largest double-door way that was already ready and opened for them. One of them was a short, bulky-looking figure with large, pouty lips on their full-moon, bright and fleshy, face. They wore a sleeveless overcoat over a tight bodysuit that showed off ever one of their feminine curves. The other was taller and slim, also wearing a bodysuit though much baggier, to the point where the sleeves looked like small wings. This one's face was overtaken with a large, characteristic nose and the bright eyes that topped it; glittering grey, those eyes were, with an icy edge. Though, they were relaxed in their stance compared to the other, whose shorter stature didn't matter--they held their body stiff and stern, hands on their hips.
+
+They faced a long table of a dozen Curators and Senior Watchers - a committee for societal preservation, as it were, with no formal name. The senior figures wore closed robes in dark reds, greens, blues, and blacks, standing out in velvet against the hard cold stone backdrop of the room in their hard-resin chairs. Most of them had their hands placed on the long table in front of them, if not on their lap. They gazed over the two with emotionless and lifeless stares. They weren't old, but they gave off an aura of life ending; of stagnancy and near-death.
+
+"Do you know why you are here?" asked one of them, stiffly. It was a Curator. The Senior Watcher sitting next to them cut in.
+
+"For the recording, state your names, strata, and rank. Starting with you," the Senior Watcher directed, pointing at the impressive, voluptuous one.
+
+She nodded before responding. "Aayat. Watcher, Second Class." Her voice rang out like the push of a horn, guttural and powerful.
+
+The other figure stood a small step forward, their jumpsuit ruffling loudly in the echoing space. "Roshan," they said, their voice sliding out between their lips, smooth and controlled. "Watcher. First Class." They sighed.
+
+The Senior Watcher, a man who resembled a stick insect with big eyes more than anything else, retorted at the light sound of Roshan's huff. "Oh, I'm *sorry*, Roshan. I know how much all this formality *irritates* and *inconveniences* you. I sure hope you can handle all of this while we try to talk about *the force trying to take over all of Dulcity!*"
+
+The other Senior Watchers and Curators hummed with troubled energy at the outburst. "Alishaam, will you control yourself?" one tut-tutted at the grumpy, stick-faced man. "Can we get through a single session without drama, *please*?" said another, tapping her fingers on the table.
+
+"Silence!" Alishaam cried out. "I will have order!"
+
+"You're the--"
+
+Alishaam wouldn't be stopped. "Roshan. Aayat. You are here to confirm some statements before we reconvene to discuss specific actions--"
+
+Roshan sighed again, though much more audibly this time, and crossed his arms. His ace showed only one thing: disappointment.
+
+"Rosh, are you going to say something or sigh them to death?" Aayat mumbled from the side of her lips. "They won't--"
+
+"Do you have something you'd like to say, young lady, Second class?" Alishaam dryly asked. Aayat and Roshan exchanged glances; Roshan looking apologetic and Aayat quickly switching to an eyeroll.
+
+"We've given our story and our evidence on two different occasions, now," she started. Upon seeing the narrowed eyes of the entire table, Aayat stopped.
+
+Roshan jumped in to the rescue. "Why can't we just...decide now? What's the holdup?"
+
+The entire table erupted in a sea of gasps, clutches, and shocked utterances: "Who do they think they are?" "Don't they know how this works?" "They are out of line!"
+
+Alishaam shook his head slowly. "It appears these young, impressionable Watchers are letting impatience cloud their judgment," he said, a comically-exaggerated tone of regret forced on his words. "It looks as though we, who have been making the most important decisions about Dulcity's security for *years*, need to learn a thing or two--"
+
+Aayat had had enough. "Fine, we'll do whatever. What statements are we confirming? The sooner we do this--"
+
+"The sooner you can make your decisions," Roshan concluded. The two exchanged glanced again, this time, with warm smiles.
+
+The table was quieter, but who's to say what did it. Was it the confident tension of these two young Watcher officers? Or was it the sense of real dread that kept permeating everyone's thoughts, making them stop every once in a while. After all...
+
+"Here are the statements to confirm," a Curator read from a piece of paper. Her husky voice read each statement like a final judgment.
+
+"First, you were both working at the time of the incident."
+
+Answering in unison: "Yes."
+
+"Second, Aayat was the first to perceive the discrepancy."
+
+"Yes," they answered again.
+
+"Third, Roshan confirmed the discrepancy on their screens and in the raw auxiliary code."
+
+"Yes."
+
+"Fourth, Aayat kept the running list of discrepancy codes in her personal Watcher database."
+
+"Yes."
+
+"Fifth, Roshan saw the pattern between the discrepancy codes on Aayat's list."
+
+"Yes."
+
+And so on they went, a total of twenty-eight questions. All recording devices were imperceptibly noting down the confirmation from multiple angles: some where the entire room was visible, others where Aayat and/or Roshan's faces were fully captured. The invisible recorders, the pride of the old Watcher-Tactile alliance,

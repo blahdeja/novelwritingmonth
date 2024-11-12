@@ -14,6 +14,8 @@ City Center/City "Heart" - D.I.L. (Dulcity Interior Locality or "Dil")
 
 All names of stratas have an old language name and a new language name. People know of these names but it doesn't mean much to most people in this time period.
 
+Dulcitars: members of society, people of Dulcity (everyone is a Dulcitar)
+
 Strata of Society:
 - Workers, repairpersons, maintenance - Mainteniyya -> Tactiles
 - The merchants - Paisaniyya -> Networkers/Merchant Networkers (depends on who you ask)
@@ -60,13 +62,23 @@ life with curators but they are not of the same strata
 
 --
 Character names
+the Watchers:
 Aayat
 Roshan
+Alishaam
 
+Diplomat family:
 Anastacia
+Raul - diplomat of the Curators (High Diplomat)
 Ollie
 
+Tactiles:
+Ilyas (Anastacia's dad)
+Kamaal - diplomat of the Tactiles
+
+Creators storyline:
 Genea
+Genea's brother, Chino
 Shuyin
 Mother
 
@@ -75,3 +87,23 @@ Mother
 
 In this story, a woman is unhappy because the programming set her up in a marriage with someone she doesn't want to marry; a diplomat who doesn't understand her problem. She's frustrated in general because she never wanted to be in the curator strata to begin with
 Her father was a Tactile who was arrested for gifting an artwork to someone without informing the watchers in a timely manner. She's never been happy with the way things are and she's starting to feel very alone.
+
+--
+
+
+Alliances
+
+
+--
+
+
+Consumers are a race of people who seem to want to take over the Dulcity
+First they start by sending messages through the auxiliary systems, which is why Tactiles are the first to become aware of the presence of an outsider
+Then they become discovered by Curators who are able to use The Logic's help to track down the source off the messages
+This sets off an alert
+- Who needs to know, and who decides?
+- How do we fend off against the Consumers? Major players don't agree with each other
+	- Option of the Cloak - Enlarge the Tactile force to focus on creating a way to cloak Dulcity in space - this is Kamaal's idea
+	- Diplomatic option - can we speak to these "Consumers" and create an understanding? Raul is the figurehead of this, dragging Anastacia, who believes a cloaking device is more useful
+	- Option of the Warrior - Focus the Tactile, Curator, and Watcher strata on creating offensive technologies as a last resort
+	- Option of Surrender - the ideology that The Logic should make all the decisions and the people should obey
